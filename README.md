@@ -1,1 +1,1 @@
-# iqbalsandhu.github.io
+https://smartsingh.github.io/web_project/
